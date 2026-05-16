@@ -1,4 +1,4 @@
-# 
+# DaVinci Resolve for PC | DaVinci Resolve for Windows vip Transition: slow-motion & 4K-export offers the most advanced DaVinci Resolve for PC | DaVinci Resolve for Windows
 
 
 
